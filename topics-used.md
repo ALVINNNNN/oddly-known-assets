@@ -1,0 +1,15 @@
+# Oddly Known - topics already used (do not repeat)
+- pineapple, honey in tombs, Venus day/year, zero shark attacks on the Moon
+- bananas are radioactive
+- sharks are older than trees
+- ELIZA, the first chatbot
+- Greenland shark lifespan
+- octopus three hearts
+- sloth poops once a week (moths)
+- flamingos pink from food
+- cats can't taste sweet
+- hippo red "sweat" sunscreen
+- koala fingerprints
+- dolphins sleep with half their brain
+- owls can't move their eyes / 270 degree neck
+- elephants hear through their feet
