@@ -13,3 +13,4 @@
 - dolphins sleep with half their brain
 - owls can't move their eyes / 270 degree neck
 - elephants hear through their feet
+- wood frogs freeze solid in winter
